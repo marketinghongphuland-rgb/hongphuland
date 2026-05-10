@@ -123,7 +123,7 @@ MẶT BẰNG SADORA: Gồm 4 block A, B, C, D đối xứng. Các căn hộ số
 
 – MẶT BẰNG SARICA: Mặt bằng “Kim cương” với các căn hộ diện tích lớn, sảnh thang máy riêng cho từng trục căn, mang lại sự riêng tư tuyệt đối cho gia chủ.
 
-8. App Chứng Chỉ BĐS: Cách mạng Công nghệ trong Đầu tư
+8. App Chứng Chỉ BĐS https://hongphuland.com.vn/: Cách mạng Công nghệ trong Đầu tư
 Trong kỷ nguyên 4.0, Hong Phu Land tự hào giới thiệu App Chứng Chỉ BĐS – một trợ lý ảo đắc lực cho mọi nhà đầu tư. App không chỉ là nơi xem tin đăng, mà là hệ sinh thái số hóa toàn bộ quy trình đầu tư:
 
 Tra cứu quy hoạch 1/500: Chỉ với một cú chạm, quý khách có thể biết được mảnh đất hay tòa nhà bên cạnh mình tương lai sẽ là gì.
